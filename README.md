@@ -1,2 +1,2 @@
-# durkan1804.github.io
+# durkan1804
 musings
